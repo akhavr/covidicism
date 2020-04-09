@@ -15,4 +15,7 @@
 * Валерий Дубиль (Батькившина)
 * Ярослав Железняк (Голос).
 
-Джерело: https://www.facebook.com/humirov/posts/861317304334382
+Джерела:
+ * https://www.facebook.com/humirov/posts/861317304334382
+ * http://w1.c1.rada.gov.ua/pls/zweb2/webproc4_1?pf3511=68397
+ * http://w1.c1.rada.gov.ua/pls/radan_gs09/ns_golos?g_id=4697
