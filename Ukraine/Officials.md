@@ -26,3 +26,4 @@
 
 Джерело:
  * https://www.facebook.com/humirov/posts/870034340129345
+ * http://w1.c1.rada.gov.ua/pls/zweb2/webproc4_1?pf3511=68577
